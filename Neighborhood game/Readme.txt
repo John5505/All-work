@@ -1,4 +1,4 @@
-One of my more recent quick projects, still a bit glitchy but should help
+One of my more recent quick projects
 
 if you want a full copy of the resulting game feel free to contact me at johnsima851@gmail.com
 
